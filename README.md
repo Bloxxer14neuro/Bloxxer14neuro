@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bloxxer14neuro
+- 👋 Hi, I’m @Bloxxer14neuro I'm not a neural network rather just some kid trying to do coding
 - 👀 I’m interested in creating tools to assist in brain and spinal cord surgeries
 - 🌱 I’m currently learning codeblocks and pyhton scripts
 - 💞️ I’m looking to collaborate on lgbtq+ related 3D art and design commisions
