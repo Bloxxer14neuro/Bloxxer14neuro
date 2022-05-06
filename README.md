@@ -5,7 +5,7 @@
 - 📫 How to reach me leonardh390@gmail.com
 --->
 some quirks that I have:
-- I have problems with dealing with family members espicially my mom and grandfather. but sometimes my dad too. who had to use - gaslighting tactics of an average   internet troll to mentally train me)
+- I have problems with dealing with family members espicially my mom and grandfather. but sometimes my dad too. who had to use the gaslighting tactics of an average   internet troll to mentally train me
 - I have a rare disorder that is called spd(sensory processsing disorder for you nerds out there)
 - I also have ADHD and might suffer from toxoplasmosis. (I diagnosed myself with toxoplasmosis) but I don't know weather I have it or not.
 - I also suffer from diabetes and a high risk of fatty-liver disease. and also a possible risk of heart disease (I diagnosed myself with a risk of heart disease)
